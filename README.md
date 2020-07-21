@@ -2,11 +2,11 @@
 
 ### Actualmente trabajo como planificador de medios en [Publicidad Comercial Nicaragua](http://www.pcomercial.com.ni/ "publicidad comercial")
 
-###Estoy aprendiendo Marketing de datos
+### Estoy aprendiendo Marketing de datos
 
-###Estoy buscando Colaborar en proyectos sociales digitales.
+### Estoy buscando Colaborar en proyectos sociales digitales.
 
-###Preguntame sobre Compra de medios digitales y Estretegia
+### Preguntame sobre Compra de medios digitales y Estretegia
 
 
 <!--
