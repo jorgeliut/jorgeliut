@@ -1,6 +1,6 @@
 # Hola, Soy Jorge Alvarado 👋
 
-### Actualmente trabajo como planificador de medios en [Publicidad Comercial Nicaragua](http://www.pcomercial.com.ni/ "publicidad comercial")
+### Actualmente trabajo como esepcialista de medios digitales en [Banpro Nicaragua](https://www.banprogrupopromerica.com.ni)
 
 ### Estoy aprendiendo Marketing de datos
 
