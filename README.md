@@ -1,10 +1,10 @@
 # Hola, Soy Jorge Alvarado 👋
 
-### Actualmente trabajo como esepcialista de medios digitales en [Banpro Nicaragua](https://www.banprogrupopromerica.com.ni)
+### Actualmente trabajo como esepcialista de medios digitales en [Banpro Nicaragua](https://www.banprogrupopromerica.com.ni).
 
-### Estoy colaborando con [Bazzar Digital](https://www.bazzar.digital)
+### Estoy colaborando con [Bazzar Digital](https://www.bazzar.digital).
 
-### Preguntame sobre Compra de medios digitales y estretegia
+### Preguntame sobre creaticidad y estrategia digital.
 
 
 <!--
