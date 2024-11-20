@@ -2,11 +2,9 @@
 
 ### Actualmente trabajo como esepcialista de medios digitales en [Banpro Nicaragua](https://www.banprogrupopromerica.com.ni)
 
-### Estoy aprendiendo Marketing de datos
+### Estoy colaborando con [Bazzar Digital](https://www.bazzar.digital)
 
-### Estoy buscando Colaborar en proyectos sociales digitales.
-
-### Preguntame sobre Compra de medios digitales y Estretegia
+### Preguntame sobre Compra de medios digitales y estretegia
 
 
 <!--
